@@ -1,5 +1,5 @@
 # 💫 About Me:
-Hii i am pujaswain 👋<br>currently pursuing  masterdegree(MCA)
+Hii I am pujaswain 👋<br>currently pursuing my masterdegree(MCA)
 
 
 ## 🌐 Socials:
